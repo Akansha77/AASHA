@@ -4,7 +4,7 @@
 With a suite of smart, innovative features, *AASHA* is your trusted companion to navigate challenges and threats in life. 🙌  
 Whether it’s escaping danger 🆘 or seeking guidance 🙏, *AASHA* is here to inspire courage and strength. 💪  
 
-Join the *AASHA* community today and unlock a new level of security and well-being. 😊  
+Join the *AASHA* community today and unlock a new level of security and well-being. 😊 
 
 ---
 
