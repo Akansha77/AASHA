@@ -1,4 +1,4 @@
-# 🌸 AASHA - Empowering Women’s Safety and Well-being 🌸  
+# AASHA - Empowering Women’s Safety and Well-being 🌸  
 
 ✨ *AASHA* is not just a website—it’s a movement for empowering women to take charge of their own safety and happiness! 💖  
 With a suite of smart, innovative features, *AASHA* is your trusted companion to navigate challenges and threats in life. 🙌  
