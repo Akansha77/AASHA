@@ -39,4 +39,4 @@ Share your real-time location with trusted contacts or authorities until you’r
 
 💖 With *AASHA*, your safety and happiness are just a click away! 💖  
 
-Website Link🔗 https://anomasingh.github.io/AASHA/
+Website Link🔗 https://github.com/Akansha77/AASHA
